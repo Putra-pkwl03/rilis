@@ -1,1 +1,1 @@
-# rilis
+AYOKKKKK KAMU BISAAAA!!!!
